@@ -1,4 +1,4 @@
-### 👋 Hi, I’m @teresa-keck
+### Hi, I’m @teresa-keck 👋 👋 
 
 - 👀 I’m interested in ...GOLF!
 - 🌱 I’m currently learning ...All things DATA ANALYTICS
